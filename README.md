@@ -1,1 +1,1 @@
-![175866612-2dbf2f72-defc-4a84-b578-7227d77aa153](https://github.com/mizu9877/mizu9877/assets/124166479/bc729e37-65fa-4837-9cc5-0c9523b2f2ee)
+![silhouette-men-walking-outdoors-sunset-generated-by-ai_188544-45234](https://github.com/mizu9877/mizu9877/assets/124166479/0ee478fd-815d-4f95-a0ac-f5b97a996001)
